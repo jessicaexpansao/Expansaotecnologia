@@ -1,1 +1,2 @@
 # Expansaotecnologia
+Equipe: Professora Jéssica
